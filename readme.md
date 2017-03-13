@@ -1,3 +1,6 @@
 bla bla
 
-xsghjhklèæ
+xsghjhklï¿½ï¿½
+
+
+neÅ¡to novo
